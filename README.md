@@ -8,7 +8,7 @@
 
 🎲 D&D enjoyer on the side — plotting beginner-friendly scenarios featuring giant rats, chaotic taverns, and questionable heroes like Master Raz.
 
-🍎 Mac user, parce que j’aime quand tout tourne rond (et silencieusement).
+🍎 Mac user, because it's better.
 
 ⚡ I don't ship messy code. Unless it's for a goblin NPC — then it’s on purpose.
 
